@@ -1,6 +1,6 @@
 # 🎁 Ønskeliste
 
-Marcs ønskeliste — tak fordi du kigger forbi! 😊
+Marcs ønskeliste 😊
 
 > Links er kun til inspiration. Køb gerne et andet sted eller et tilsvarende produkt.
 
