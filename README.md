@@ -1,29 +1,68 @@
-# -nskeliste
-Marcs wishlist
+# 🎁 Ønskeliste
 
-# ● Ninja CREAMi Deluxe NC501EU 10-IN-1 ismaskine:
-[Link til Power](https://www.power.dk/koekken-og-madlavning/koekkenmaskiner-og-miksere/is-og-slush-maskiner/ninja-creami-deluxe-nc501eu-10-in-1-ismaskine/p-3187340/)
+Marcs ønskeliste — tak fordi du kigger forbi! 😊
 
-[Link til ProShop](https://www.proshop.dk/Ismaskine/Ninja-Ismaskine-Creami-Deluxe-NC501EU-Black-Silver/3283810)
+> Links er kun til inspiration. Køb gerne et andet sted eller et tilsvarende produkt.
 
-# ● Svømme - hætte, hue, hat (hvad end man kalder dem)
+---
 
-# ● Lednings-fri støvsuger
+## 🍳 Køkken
 
-# ● 8 eller 10 stik-dåse med surge protection (mod lyn-nedslag). Gerne 2 x 4 eller 2x5 rækker i sort
+### Ninja Crispi Pro 7-i-1 glas-airfryer
+Den store model med glasbeholderne.
 
-[Link til Amazon de](https://www.amazon.de/-/en/10-Way-Multiple-Protection-Distribution-Mounting-black/dp/B0C6Y518RX/257-9592724-7142549?pd_rd_w=neesZ&content-id=amzn1.sym.716712ef-df33-47df-ae89-8f57d61f71e1&pf_rd_p=716712ef-df33-47df-ae89-8f57d61f71e1&pf_rd_r=8CNJ96KKD5NV7MC1WNKF&pd_rd_wg=KR9Wg&pd_rd_r=78f4d668-2c0c-4ccc-9f4b-242da0dbe52c&pd_rd_i=B0C6Y518RX&th=1)
+- [Se hos SharkNinja](https://www.sharkninja.dk/ninja-crispi-pro-7-i-1-glas-airfryer-cyberspace-as101eucy/AS101EUCY.html?dwvar_AS101EUCY_color=434D61)
 
-# ● Drinks sharker barsæt (alt i stål)
+### Ninja CREAMi Deluxe NC501EU 10-i-1 ismaskine
 
-# ● Bøger: 
-## The Burnout Society:
-[Link til Saxo](https://www.saxo.com/dk/the-burnout-society_byung-chul-han_paperback_9780804795098)
+- [Se hos Power](https://www.power.dk/koekken-og-madlavning/koekkenmaskiner-og-miksere/is-og-slush-maskiner/ninja-creami-deluxe-nc501eu-10-in-1-ismaskine/p-3187340/)
+- [Se hos ProShop](https://www.proshop.dk/Ismaskine/Ninja-Ismaskine-Creami-Deluxe-NC501EU-Black-Silver/3283810)
 
-[Link til Bog&Ide](https://www.bog-ide.dk/produkt/5126614/byung-chul-han-the-burnout-society)
+### Drinks-shaker barsæt
+Gerne alt i stål.
 
-# Kontakt mig ved følgende gaver:
+---
 
-# ● Chrome cast eller TV med Chrome cast inbygget
+## 🔧 Værktøj
 
-https://www.sharkninja.dk/ninja-crispi-pro-7-i-1-glas-airfryer-cyberspace-as101eucy/AS101EUCY.html?dwvar_AS101EUCY_color=434D61
+### Roterende multiværktøj til udskæring (fx Dremel)
+Det lille håndholdte værktøj med et hoved, der drejer rundt – til at skære, gravere, slibe og lave fine kanter og affasninger i træ m.m. Gerne med et sæt forskellige bits/tilbehør.
+
+### Akku-bore-/skruemaskine
+En ledningsfri, håndholdt boremaskine, som også kan bruges som skruemaskine.
+
+---
+
+## 🏠 Hjem
+
+### Ledningsfri støvsuger
+
+### Stikdåse med 8 eller 10 stik og overspændingsbeskyttelse
+Beskytter mod lynnedslag. Gerne 2 × 4 eller 2 × 5 rækker, i sort.
+
+- [Se hos Amazon.de](https://www.amazon.de/dp/B0C6Y518RX)
+
+---
+
+## 🏊 Sport og velvære
+
+### Svømmehætte
+(eller badehætte, svømmehue — hvad man nu kalder dem)
+
+### Solcreme med fugtighedscreme (SPF 50)
+Gerne i god kvalitet, fx ISDIN Fusion Water SPF 50 eller La Roche-Posay Anthelios.
+
+---
+
+## 📚 Bøger
+
+### *The Burnout Society* — Byung-Chul Han
+
+- [Se hos Saxo](https://www.saxo.com/dk/the-burnout-society_byung-chul-han_paperback_9780804795098)
+- [Se hos Bog & Idé](https://www.bog-ide.dk/produkt/5126614/byung-chul-han-the-burnout-society)
+
+---
+
+## 📞 Kontakt mig først ved disse gaver
+
+### Chromecast eller et TV med Chromecast indbygget
