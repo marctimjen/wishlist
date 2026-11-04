@@ -50,9 +50,6 @@ Beskytter mod lynnedslag. Gerne 2 × 4 eller 2 × 5 rækker, i sort.
 ### Svømmehætte
 (eller badehætte, svømmehue — hvad man nu kalder dem)
 
-### Solcreme med fugtighedscreme (SPF 50)
-Gerne i god kvalitet, fx ISDIN Fusion Water SPF 50 eller La Roche-Posay Anthelios.
-
 ---
 
 ## 📚 Bøger
